@@ -1,3 +1,23 @@
+# 12dev
+Mignonne, allons voir si la rose
+Qui ce matin avait déclose 
+Sa robe de pourpre  au Soleil,
+A point perdu cette vêprée 
+Les plis de sa robe pourprée,
+Et son teint au vôtre pareil.
+
+Las ! voyez comme en peu d'espace,
+Mignonne, elle a dessus la place
+Las ! las ses beautés laissé choir  !
+Ô vraiment marâtre Nature,
+Puis qu'une telle fleur ne dure
+Que du matin jusques au soir !
+
+
+我叫avril我今年三十六岁
+我2015年到法国，已经7年了
+我有两个儿子
+
 Un bûcheron et sa femme n'ont plus de quoi nourrir leurs sept garçons. Un soir, alors que les enfants dorment, les parents se résignent, la mort dans l'âme, à les perdre dans la forêt. Heureusement, le plus petit de la fratrie, âgé de sept ans, surnommé Petit Poucet en raison de sa petite taille, espionne la conversation. Prévoyant, il se munit de petits cailloux blancs qu'il laissera tomber un à un derrière afin que lui et ses frères puissent retrouver leur chemin. Le lendemain, le père met son sinistre plan à exécution. Mais le Petit Poucet et ses frères regagnent vite leur logis grâce aux cailloux semés en chemin. Les parents sont heureux de les revoir car, entre-temps, le seigneur du village avait enfin remboursé aux bûcherons l'argent qu'il leur devait.
 
 Mais ce bonheur ne dure que le temps de cette prospérité éphémère. Lorsqu'ils se retrouvent dans la pauvreté première, les parents décident à nouveau d'abandonner leurs sept enfants dans la forêt. Ils s'assurent de fermer la porte de la maison à clef afin que le Petit Poucet ne puisse pas aller ramasser des cailloux. Il tente donc à la place, au moment du trajet, de laisser tomber des petits morceaux du pain que leur mère leur a donné à lui et à ses frères, mais le pain est mangé par des oiseaux. C'est ainsi que lui et ses frères se retrouvent perdus dans la forêt. Ils arrivent alors devant une chaumière et demandent à y loger. La femme habitant en cette maison essaie de les persuader de ne pas entrer puisque son mari est un ogre qui mange les petits enfants. Mais le Petit Poucet, préférant l'ogre aux loups de la forêt, insiste pour y entrer avec ses frères. Le soir venu, la femme les cache sous un lit, mais son ogre de mari attiré par une « odeur de chair fraîche » a vite fait de découvrir la cachette des jeunes enfants. Elle réussit toutefois à le convaincre de remettre au lendemain son festin.
